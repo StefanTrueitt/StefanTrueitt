@@ -5,6 +5,7 @@
 - 📫 How to reach me ...
 - Instagram: @stef.ig_
 - Email: stefantrueittbusiness@gmail.com
+- Twitter: @steffycodes
 - On this site of course :)
 
 <!---
