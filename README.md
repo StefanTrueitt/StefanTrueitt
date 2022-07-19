@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on basic projects for the time being and advance higher with my skill set.
 - 📫 How to reach me ...
 - Instagram: @stef.ig_
-- Email: lilstef27@yahoo.com
+- Email: stefantrueittbusiness@gmail.com
 - On this site of course :)
 
 <!---
